@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @hdzhong
-- 👀 I’m interested in all aspects of software development, biotech, public health, and inte
+- 👀 I’m interested in all aspects of software development, biotech, public health, and gaming!
 - 🌱 I’m always looking to learn new things
 
 
